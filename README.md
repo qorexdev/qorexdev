@@ -45,8 +45,6 @@ Always learning, always coding.
 
 <br/>
 <br/>
-
-
 <br/>
 
 ### 📫 Connect with me
